@@ -1,4 +1,6 @@
+![Miho Kajioka - Works](https://github.com/user-attachments/assets/23d078ac-7404-4688-8f3c-6535fc5ec963)
 # 💫 About Me:
+
 🌻 Began the journey programming in Luau on Roblox Studio<br><br>🌜: I currently work as a civil servant<br><br>🌱:  I am studying computer science<br><br>🐀: I intend to continue working in the IT field<br><br>💬 I like to listen to people's opinions and talk<br><br>👨‍💻 I read books and like to program in my spare time<br><br>🌟 I like all genres of books
 
 
